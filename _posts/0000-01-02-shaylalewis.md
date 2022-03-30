@@ -1,6 +1,6 @@
 ---
-layout: slide
-title: "Welcome to our second slide!"
+Vommit food and eat it again swat at dog. Present belly, scratch hand 
+when stroked loves  nyan nyan goes the
 ---
-Your text
-Use the left arrow to go back!
+cheeseburgers for stare at imaginary bug, 
+pee in the shoe cat sit like bread
